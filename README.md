@@ -15,9 +15,9 @@
 
 - 💬 Ask me about **python, javascript and bootstrap, MERN STACK**
 
-- 📫 How to reach me **oseikelvin709@gmail.com**
+- 📫 How to reach me **efuamichelle@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **Am very fun and lovely**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
